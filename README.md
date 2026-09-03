@@ -11,3 +11,4 @@ Go read the [manual](https://communityforums.atmeta.com/t5/Community-Resources/N
 - Join the [Meta Horizon Discord](https://discord.gg/3sWk8BD9FZ)
 - Check out the [Meta Creator Forums](https://communityforums.atmeta.com/t5/Creator-Forum/ct-p/Meta_Horizon_Creator_Forums)
 Created by Jason Scott Heise
+Owned by Elon Musk 
